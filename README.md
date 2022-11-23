@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Micheow2
+- 👀 I’m interested in badminton and programming
+- 🌱 I’m currently learning IT
+- 📫 How to reach me ductrongnguyen719@gmail.com
