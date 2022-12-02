@@ -2,3 +2,10 @@
 - 👀 I’m interested in badminton and programming
 - 🌱 I’m currently learning IT
 - 📫 How to reach me ductrongnguyen719@gmail.com
+
+ups and downs, high and lows
+i'm talking to all my ghosts
+oh where did I go? 
+cause i'm talking to all my ghosts
+
+i added this in pycharm
