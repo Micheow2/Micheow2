@@ -11,3 +11,5 @@ cause i'm talking to all my ghosts
 i added this in pycharm
 
 num1 have added this sentence
+
+at 7/12/2022 i changed this file
