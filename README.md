@@ -10,4 +10,5 @@ cause i'm talking to all my ghosts
 
 i added this in pycharm
 
-num1 have added this sentence
+num1 have added this sentence 
+7/12 i really want this
